@@ -5,7 +5,6 @@
 📍 *Cairo, Egypt*  
 📫 *[Email me](mailto:blalsy681@gmail.com)*  
 🔗 *[LinkedIn](https://www.linkedin.com/in/bilal-sayed-34306828b)*  
-💻 *[GitHub](https://github.com/blalhamd)*
 
 ---
 
